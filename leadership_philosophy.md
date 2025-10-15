@@ -6,7 +6,7 @@
 
 
 
-My approach to leadership is centered on a core belief: strong, high-performing teams result when the right people are in the right environment. Therefore, the role of a leader is to find the right people and to provide them with the environment where they can thrive. To this end, I let four core principles determine both how I hire and how I develop a team culture: Generosity, Loyalty, Honesty, and Challenge.
+My approach to leadership is centered on a core belief: strong, high-performing teams emerge when the right people are in the right environment. Therefore, the role of a leader is to find the right people and to provide them with the environment where they can thrive. To this end, I let four core principles determine both how I hire and how I develop a team culture: Generosity, Loyalty, Honesty, and Challenge.
 
 
 
